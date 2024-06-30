@@ -1,4 +1,4 @@
-# *Margarita Sharapova*
+# Margarita Sharapova
 
 _________________________
 ## Contacts
